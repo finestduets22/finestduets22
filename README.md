@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @finestduets22
+- 👀 I’m interested in sport, muic, coding, ai
